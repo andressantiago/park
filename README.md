@@ -16,7 +16,7 @@ If you have to ask, then you can't afford it.
 
 ### Park
 
-Noun: place to take dog, have picknics.
+Noun: place to take dog, have picnics.
 
 Verb: to place you car out of harms way along the side of the road, or in a garage/lot.
 
